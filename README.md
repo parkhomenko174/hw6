@@ -5,4 +5,4 @@ https://github.com/parkhomenko174/hw6/blob/master/WLoLJ-tPf0k.jpg
 # Часть 2. 
 # https://github.com/parkhomenko174/hw6/blob/master/dSuk54hcCzM.jpg
 # https://github.com/parkhomenko174/hw6/upload/master
-# слово inventive https://github.com/parkhomenko174/hw6/blob/master/cQTVodBr8tg.jpg 
+# слово inventive https://github.com/parkhomenko174/hw6/blob/master/cQTVodBr8tg.jpg https://github.com/parkhomenko174/hw6/upload/master
